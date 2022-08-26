@@ -2,7 +2,7 @@
 ### :earth_americas: Milan, Italy (available for remote working)
 ### :floppy_disk: Software Developer
 ### :mailbox_with_mail: and.prina@gmail.com
-### :briefcase: [Linkedin](https://www.linkedin.com/in/prina-andrea/)
+### :briefcase: <a href="https://www.linkedin.com/in/prina-andrea/" style="color:white">Linkedin</a>
 
 ---
 
