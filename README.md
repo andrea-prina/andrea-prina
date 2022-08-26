@@ -1,8 +1,8 @@
 ## ABOUT ME
 ### :earth_americas: Milan, Italy (available for remote working)
 ### :floppy_disk: Software Developer
-### :mailbox_with_mail: and.prina@gmail.com
 ### :office: [Linkedin](https://www.linkedin.com/in/prina-andrea/)
+### :mailbox_with_mail: [Email me!](https://mailxto.com/fod0vk)
 
 ---
 
